@@ -8,4 +8,4 @@
 
 📫 How to reach me: You can reach me via email at syntaxsage07@gmail.com
 
-⚡ Fun fact: I enjoy solving coding challenges on platforms like LeetCode and HackerRank in my spare time.
+⚡ Fun fact: I enjoy swimming in my spare time.
