@@ -1,4 +1,4 @@
-👋 Hi, I’m Adewale
+👋 Hi, I’m Adewale Wahab.
 
 👀 I’m interested in exploring the latest JavaScript frameworks, building interactive web applications, and diving deep into Node.js development.
 
