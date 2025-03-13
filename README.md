@@ -8,4 +8,4 @@
 
 📫 How to reach me: You can reach me via email at syntaxsage07@gmail.com
 
-⚡ Fun fact: I enjoy chatting and swimming in my spare time..
+⚡ Fun fact: I enjoy chatting and swimming in my spare time.
